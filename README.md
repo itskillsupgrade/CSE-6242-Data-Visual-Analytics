@@ -1,6 +1,6 @@
 # CSE-6242-Data-Visual-Analytics
 For answer please contact:  connect@itskillsupgrade.com, deepakunique@gmail.com WhatsApp: +91 9320397787
-
+google-site-verification: google66dba5498a8c4612.html
 
 Welcome to ItSkillsUpgrade.com  One stop solution for all your technology  related problem. 
 
